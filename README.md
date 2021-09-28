@@ -1,3 +1,0 @@
-# BRUH
-# YOU SUCK
-# ejifjewifjiwejfiewjf
